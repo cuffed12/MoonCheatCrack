@@ -1,6 +1,4 @@
-<h2 align="center">MOON PAID  FREE CRCKED :)</h2>
-
-<p align="center">Discord Server: https://discord.gg/veuqx
+<h2 align="center">MOON PAID CRCKED :)</h2>
 
 ![meme](https://media.discordapp.net/attachments/985249005283975178/985249043359891476/unknown.png)
 
